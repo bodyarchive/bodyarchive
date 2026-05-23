@@ -18,7 +18,7 @@
 <p align="center">
 <sub>
 <a href="https://koifishuu.atabook.org/">ata</a>ㅤ𖹭ㅤ
-<a href="https://pronouns.cc/@kissychu">prnz</a>ㅤ𖹭ㅤ
+prns page is a wip rnㅤ𖹭ㅤ
 <a href="https://rentry.co/evanznmawia">rentry (shared)</a> 
 </sub>
 
