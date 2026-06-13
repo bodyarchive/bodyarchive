@@ -15,7 +15,7 @@ ${\color{#960000}\text{Now,}}$ ${\color{#960000}\text{I}}$ ${\color{#960000}\tex
 
 <p align="center">
 <sub>
-<a href="https://koifishuu.atabook.org/">ATABOOK</a>ㅤ┄ㅤ<a href="https://koifishuu.atabook.org/">GUNS.LOL</a> 
+<a href="https://koifishuu.atabook.org/">ATABOOK</a>ㅤ┄ㅤ<a href="https://guns.lol/koixzu">GUNS.LOL</a> 
 </sub>
 
 <p align="center">
