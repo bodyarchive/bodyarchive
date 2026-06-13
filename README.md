@@ -1,27 +1,27 @@
 <p align="center">
-<img src="https://github.com/koixzu/koixzu/blob/adc78f90f61bdb3628da3afb00027b1d5b3a139d/tumblr_46ad72209301d48ef39bea21415fa49b_1cd7c997_2048.png" width="800"/>
+<img src="https://64.media.tumblr.com/ac0aa47bd47f79ff4eadc584cd1bb97a/93ce3cb722e5249f-85/s2048x3072/ee61817766ddeefcda69954df54bacf4c3211358.pnj" />
 </p>
 
 <p align=center>
-<img src="https://github.com/koixzu/koixzu/blob/0e2c9a407f3c37673dd2ecb2d9e3baf7909264ad/tumblr_2f70fba6bc0cc93f0ee690d5adb924bd_6d30144b_400.png" width=300>
+<img src="https://64.media.tumblr.com/2ac30fcb5b3a3400db6cdb2eb57bd460/9176a7cff8e86ad9-69/s2048x3072/2623c6e84b69a1bfa03b241228b133d22ac9c5e4.pnj" width=300>
   
 <p align="center">
-  <span style="color":#FFD1DF>
-    tιᥴkᥱts ρᥣᥱᥲsᥱ, tιᥴkᥱts!
-  </span>
+${\color{#960000}\text{Now,}}$ ${\color{#960000}\text{I}}$ ${\color{#960000}\text{can}}$ ${\color{#960000}\text{be}}$ ${\color{#960000}\text{there}}$ ${\color{#960000}\text{for}}$ ${\color{#960000}\text{you,}}$ ${\color{#6E0000}\text{ALWAYS.}}$
 </p>
 
 <p align="center">
-<img src="https://github.com/koixzu/koixzu/blob/2ac979413ffb368575fd04371c9ff096825bd936/tumblr_bd90435c72a69a8936acff20287df809_665fadcb_400.jpg">
+<img src="https://komarev.com/ghpvc/?username=koixzu&label=WORSHIPPERS&color=194A40&style=flat" />
 </p>
 
 <p align="center">
 <sub>
-<a href="https://koifishuu.atabook.org/">ata</a>ㅤ𖹭ㅤ
-prns page is a wip rnㅤ𖹭ㅤ
-<a href="https://rentry.co/evanznmawia">rentry (shared)</a> 
+<a href="https://koifishuu.atabook.org/">ATABOOK</a>ㅤ┄ㅤ<a href="https://koifishuu.atabook.org/">GUNS.LOL</a> 
 </sub>
 
 <p align="center">
-<img src="https://github.com/koixzu/koixzu/blob/572b2f83d43d3bf2de461f2989c0758c53acaa3f/tumblr_38bb5b7b7aa4e2aca52e7a8c9f743de5_e4e85422_2048.png" width="800">
+<img src="https://github.com/koixzu/koixzu/blob/8e8cbd18d14f6930fd9aae4880385783bd83a343/tumblr_d8a8a0e51f994792c788f01331203883_afc553ea_250.png">
+</p>
+
+<p align="center">
+<img src="https://64.media.tumblr.com/88cf423b71325dde3af5497a25144cb5/93ce3cb722e5249f-37/s2048x3072/f351b75b7b63968c5a8020dd337cd6979f81f820.pnj">
 </p>
