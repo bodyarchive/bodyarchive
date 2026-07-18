@@ -2,12 +2,6 @@
 <img src="https://64.media.tumblr.com/1ff67929cfd4d55256f9545f8c026489/bdee8f9e4a9a716d-d9/s2048x3072/088b8e22047ce4cd57bd1800b1cfc155d1fec380.pnj" />
 </p>
 
-<p align="center">
-<sub>
-<a href="https://github.com/koixzu">mαin</a>
-</sub>
-</p>
-
 <p align=center>
 <img src="https://64.media.tumblr.com/79487e2d8dd587da66e5b9e7c080a412/bcb9f073fa539663-ed/s400x600/243e4283ac353721284282846666eec56cd24539.pnj" width=300>
   
