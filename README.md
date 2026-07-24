@@ -1,8 +1,4 @@
 <p align="center">
-<img src="https://komarev.com/ghpvc/?username=koixzu&label=lovebugs&color=C1C086&style=flat" />
-</p>
-
-<p align="center">
 <img src="https://64.media.tumblr.com/719eeaba7bb69a41a1d9759cf2624db9/8ff4756b0e2b2421-f2/s250x400/62ef971c60af7bee13e39d3782a6cd2306409ddf.gifv" />
 </p>
 
