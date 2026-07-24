@@ -8,14 +8,14 @@
 
 <p align="center">
 <sub>
-<a href="https://koifishuu.atabook.org/">αtαbook</a> ${\color{#FFFCE6}\text{ㅤ.ㅤ}}$ <a href="link">rentry.co</a>
+<a href="https://koifishuu.atabook.org/">αtαbook</a> ${\color{#FFFCE6}\text{ㅤ.ㅤ}}$ <a href="https://rentry.co/luckymawi">rentry.co</a>
 </sub>
 </p>
 
 <p align="center">
 <sub>
 ${\color{#FBFFEF}\text{c+h friendly (no need to αsk) unless im on dni,, etc -w-}}$ <br>
-${\color{#F4F8DE}\text{muy αbout me is in my rentry (link no work rn i remαke my rentry !!)}}$
+${\color{#F4F8DE}\text{pls don't copy any of muy skins, w2i to ask fo inspo}}$
 </sub>
 </p>
 
