@@ -3,12 +3,8 @@
 </p>
 
 <p align="center">
-<img src="https://64.media.tumblr.com/719eeaba7bb69a41a1d9759cf2624db9/8ff4756b0e2b2421-f2/s250x400/62ef971c60af7bee13e39d3782a6cd2306409ddf.gifv" />
-</p>
-
-<p align="center">
 <sub>
-<a href="https://koifishuu.atabook.org/">αtαbook</a> ${\color{#FFFCE6}\text{ㅤ.ㅤ}}$ <a href="https://rentry.co/luckymawi">rentry.co</a>
+<a href="https://koifishuu.atabook.org/">αtαbook</a>ㅤ┄ㅤ<a href="https://rentry.co/luckymawi">rentry.co</a>
 </sub>
 </p>
 
@@ -20,5 +16,5 @@ ${\color{#F4F8DE}\text{pls don't copy any of muy skins, w2i to ask fo inspo}}$
 </p>
 
 <p align="center">
-<img src="https://64.media.tumblr.com/021356f03fd4949b5b91597c61128680/763929a2105e9419-62/s250x400/a625928a08a87539e75323061ff20a61df05e8f7.gifv" width=70>
+<img src="https://64.media.tumblr.com/8e68a938f5745b887c8a4125db375320/da069003b49bc8c7-e5/s500x750/8ed87caffbea47022e0b716fedfc6e89d2700019.pnj" width=70> <br>
 </p>
