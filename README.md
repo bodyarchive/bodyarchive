@@ -8,7 +8,7 @@
 
 <p align="center">
 <sub>
-<a href="https://koifishy.atabook.org/">αtαbook</a>ㅤ┄ㅤ<a href="https://rentry.co/cdsmtmrh">rentry.co</a>ㅤ┄ㅤ<a href="https://guns.lol/koixzu">guns.lol</a>ㅤ┄ㅤ<a href="https://pronouns.cc/@koixzuu">prns.cc</a>
+<a href="https://koifishy.atabook.org/">αtαbook</a>ㅤ┄ㅤ<a href="https://rentry.co/cdsmtmrh">rentry.co (outdated)</a>ㅤ┄ㅤ<a href="https://pronouns.cc/@koixzuu">prns.cc</a>
 </sub>
 </p>
 
