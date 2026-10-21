@@ -6,6 +6,13 @@
 <img src="https://komarev.com/ghpvc/?username=bodyarchive&color=000002&style=flat-square&label=RITUALS"width=80>
 </p>
 
+<div align="center">
+<details> <summary> byi </summary>
+<sub>
+I'M NOT THAT ACTIVE ON ENGLISH SERVER IF YOU'RE CURIOUS <br> MY HUMOUR CAN BE CONSIDERED 'RUDE', TELL ME IF YOU DON'T LIKE IT. <br> oh yea i talk in caps because, im a sleepy weepy kin, and s.w talks in all caps. sorry i js do it without realising it <br> IM AWKWARD AT TIMES. SORRY NOT SORRY <br> IM DIAGNOSED WITH BPD PLEASE IWC AT ALL TIMES <br> EVAN (@KITTYDUMMY) IS HELD HOSTAGE IN MY BASEMENT. DON'T WORRY I FEED THEM. SOMETIMES.
+</sub>
+</details> </div>
+
 <p align="center">
 <img src="https://github.com/bodyarchive/bodyarchive/blob/98b710b26170d1349fc2f03fda0fe88e3e8cd672/Screenshot_2026-10-03_000347-removebg-preview.png" width=260>
 <p align="center">
