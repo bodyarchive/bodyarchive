@@ -9,7 +9,7 @@
 <div align="center">
 <details> <summary> byi </summary>
 <sub>
-I'M NOT THAT ACTIVE ON ENGLISH SERVER IF YOU'RE CURIOUS <br> MY HUMOUR CAN BE CONSIDERED 'RUDE', TELL ME IF YOU DON'T LIKE IT. <br> oh yea i talk in caps because, im a sleepy weepy kin, and s.w talks in all caps. sorry i js do it without realising it <br> IM AWKWARD AT TIMES. SORRY NOT SORRY <br> IM DIAGNOSED WITH BPD PLEASE IWC AT ALL TIMES <br> EVAN (@KITTYDUMMY) IS HELD HOSTAGE IN MY BASEMENT. DON'T WORRY I FEED THEM. SOMETIMES.
+I'M NOT THAT ACTIVE ON ENGLISH SERVER IF YOU'RE CURIOUS <br> MY HUMOUR CAN BE CONSIDERED 'RUDE', TELL ME IF U DUN LIKE IT. <br> oh yea i talk in caps because, im a sleepy weepy kin, and s.w talks in all caps. sorry i js do it without realising it <br> also i talk w typing quirk. i can stop if u find 2 hard to understan! <br> IM AWKWARD AT TIME. SORRY NOT SORRY <br> IM DIAGNOSED WIF BPD PLES IWC AT ALL TIMES <br> EVAN (@KITTYDUMMY) IS HELD HOSTAGE IN MUY BASEMENT. DON WORRI I FEED THEM. SOMETIMES.
 </sub>
 </details> </div>
 
